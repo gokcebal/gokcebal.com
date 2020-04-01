@@ -1,3 +1,0 @@
-﻿GÖKÇEADA BAL
-
-WEB SİTESİ
